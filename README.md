@@ -1,3 +1,3 @@
-# currorojas.github.io
+# mi libro de cocina :).github.io
 
 En este libro de cocina te enseñaré recetas chulas
